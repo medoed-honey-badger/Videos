@@ -15,9 +15,19 @@ https://www.youtube.com/hashtag/armareforger/shorts
    - Классный эффект замедления на доли секунды
 9. https://x.com/Battlefield/status/2007482265098490127
    - Как показывают интерфейс в правом нижнем углу
-10. 
+10. https://www.youtube.com/shorts/8-XwMr5Ej7o
+   - Что все стреляют, но никто не попадает
 11. 
+12. 
 
+
+## Эффекты
+1. https://youtube.com/shorts/ntKurvVy8qk?si=7mSKLgKck5wYI8KZ
+   - Шойгу, Герасимов, где припасы!
+   - Можно ботов накинуть)) Типа - боты, где мои припасы!
+2. To Be Continued со стрелочкой влево и задник жёлтого фона и спец музыка на фоне
+3. We'll Be Right Back
+4. 
 
 
 https://www.youtube.com/watch?v=0SCef9b9_qM&
