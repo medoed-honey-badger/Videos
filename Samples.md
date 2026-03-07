@@ -16,7 +16,7 @@ https://www.youtube.com/hashtag/armareforger/shorts
 9. https://x.com/Battlefield/status/2007482265098490127
    - Как показывают интерфейс в правом нижнем углу
 10. https://www.youtube.com/shorts/8-XwMr5Ej7o
-   - Что все стреляют, но никто не попадает
+    - Что все стреляют, но никто не попадает
 11. 
 12. 
 
