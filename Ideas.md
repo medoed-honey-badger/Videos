@@ -79,7 +79,9 @@
     - https://youtube.com/shorts/AmMObA6ztEI?si=TUticN8jXoY95B3q
 43. Гайд на снайпера
     - [Гайд на снайпера Arma Reforger (Vanila) для новичков | NixAL](https://www.youtube.com/watch?v=kwDgccn9oBE)
-44. 
+44. Как зачищать здания
+    - https://www.youtube.com/shorts/ZtJ5Z1AAhWA
+45. 
 
 ## Battlefield
 1. Какие фишки были в прошлых частях
