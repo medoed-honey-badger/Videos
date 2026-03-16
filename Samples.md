@@ -27,7 +27,9 @@ https://www.youtube.com/hashtag/armareforger/shorts
    - Можно ботов накинуть)) Типа - боты, где мои припасы!
 2. To Be Continued со стрелочкой влево и задник жёлтого фона и спец музыка на фоне
 3. We'll Be Right Back
-4. 
+4. Песню Баобаб - https://music.yandex.ru/album/38427732/track/143433070?utm_medium=copy_link&ref_id=e52ef8f2-cb57-4efd-8fae-5761287fff70
+   - В целом использовать хайповые песни
+5. 
 
 
 https://www.youtube.com/watch?v=0SCef9b9_qM&
