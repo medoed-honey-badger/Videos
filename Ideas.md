@@ -81,7 +81,8 @@
     - [Гайд на снайпера Arma Reforger (Vanila) для новичков | NixAL](https://www.youtube.com/watch?v=kwDgccn9oBE)
 44. Как зачищать здания
     - https://www.youtube.com/shorts/ZtJ5Z1AAhWA
-45. 
+45. Совет по использованию бинтов и жгутов раненого, а не своих
+46. 
 
 ## Battlefield
 1. Какие фишки были в прошлых частях
