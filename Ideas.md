@@ -83,7 +83,8 @@
     - https://www.youtube.com/shorts/ZtJ5Z1AAhWA
 45. Совет по использованию бинтов и жгутов раненого, а не своих
 46. Про бронежилеты - https://vk.ru/wall-229898162_1001
-47. 
+47. Мины - https://www.youtube.com/shorts/6dcxAoEoOxs
+48. 
 
 ## Battlefield
 1. Какие фишки были в прошлых частях
