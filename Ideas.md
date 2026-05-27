@@ -87,7 +87,8 @@
 48. Как доставлять припасы - https://www.youtube.com/watch?v=VtDR3YEQ0OM
 49. Как ботов подрядить на доставку припасов - https://www.youtube.com/shorts/x7GzfQZoCps
 50. Как использовать БТР - https://www.youtube.com/shorts/P5k1TfeVy2M
-51. 
+51. Лайфхак - КШМ для организации массивной атаки
+52. 
 
 ## Battlefield
 1. Какие фишки были в прошлых частях
