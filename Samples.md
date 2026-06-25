@@ -29,7 +29,9 @@ https://www.youtube.com/hashtag/armareforger/shorts
 3. We'll Be Right Back
 4. Песню Баобаб - https://music.yandex.ru/album/38427732/track/143433070?utm_medium=copy_link&ref_id=e52ef8f2-cb57-4efd-8fae-5761287fff70
    - В целом использовать хайповые песни
-5. 
+5. https://vk.com/wall-99128346_105622
+   - Как показывают инфу из боков экрана(где килл чат или другая инфа) - просто перемещают её вниз
+6. 
 
 
 https://www.youtube.com/watch?v=0SCef9b9_qM&
